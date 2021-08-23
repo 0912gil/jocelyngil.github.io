@@ -1,1 +1,0 @@
-# jocelyngil.github.io
